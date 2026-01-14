@@ -12,3 +12,5 @@ oh look its my old intro on github and not using strawpage howsmart
 DONT call me renn , im genderfluid , i prefer any , i am diagnosed with social anxiety (and yes i am awkward) , still interact freely , w2i is preferred still , if i left the game i probly forgor / fell asleep / bad internet / i actually wanted to leave , any not so problematic fandom can interact , c*h is always ok.
 
 what am i doing
+
+FUNNY STORY when i was new i didnt know what c*h means so i literally searched everywhere until i found the answer in reddit, i still dk if its hug or hide so yea.
